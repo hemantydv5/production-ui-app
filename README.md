@@ -1,2 +1,0 @@
-# humblesoft-portfolio
-NA
